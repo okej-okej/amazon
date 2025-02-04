@@ -1,4 +1,4 @@
-# AMAZON Gutscheincode Gratis https://appsonline.cc/amazon-free-cards
+# AMAZON Gutscheincode Gratis 
 https://appsonline.cc/amazon-free-cards
 
 Sparen Sie Geld: Ihr ultimativer Leitfaden zum Finden kostenloser Amazon-Codes
